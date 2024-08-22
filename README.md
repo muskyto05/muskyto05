@@ -2,15 +2,13 @@
 
 **sou calvo**
 
+![](https://media.tenor.com/kyYaip_ibBoAAAAM/anime-silly.gif) ![](https://media1.tenor.com/m/DRBigUyhcd0AAAAC/patapata.gif)
+![](https://media.tenor.com/dhfdW3Ex9mUAAAAi/anime-dancing.gif)
+
 ### meu contato
 
 **tobinholindo12@gmail.com**
 **diccord muskyto05
-
-![](https://media.tenor.com/kyYaip_ibBoAAAAM/anime-silly.gif) ![](https://media1.tenor.com/m/DRBigUyhcd0AAAAC/patapata.gif)
-![](https://media.tenor.com/dhfdW3Ex9mUAAAAi/anime-dancing.gif)
-
-
 <!--
 **muskyto05/muskyto05** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
