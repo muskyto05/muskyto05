@@ -8,7 +8,7 @@
 **diccord muskyto05
 
 ![](https://media.tenor.com/kyYaip_ibBoAAAAM/anime-silly.gif) ![](https://media1.tenor.com/m/DRBigUyhcd0AAAAC/patapata.gif)
-![](https://media.tenor.com/XmUpFK6JyU8AAAAi/cute-please.gif)![](https://media.tenor.com/dhfdW3Ex9mUAAAAi/anime-dancing.gif)
+![](https://media.tenor.com/dhfdW3Ex9mUAAAAi/anime-dancing.gif)
 
 
 <!--
