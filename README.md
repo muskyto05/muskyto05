@@ -9,7 +9,7 @@
 
 ![](https://media.tenor.com/kyYaip_ibBoAAAAM/anime-silly.gif)
 
-![](https://tenor.com/pt-BR/view/patapata-gif-941360629596385757)
+![](https://media1.tenor.com/m/DRBigUyhcd0AAAAC/patapata.gif)
 <!--
 **muskyto05/muskyto05** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
