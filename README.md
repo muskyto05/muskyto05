@@ -1,9 +1,8 @@
-## Shinra Tensei
+## "A vingança nunca é plena, mata a alma e a envenena"
 
 ### meu contato
 
 **tobinholindo12@gmail.com**
-**diccord muskyto05
 
 **sou calvo**
 
